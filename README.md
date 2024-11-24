@@ -1,0 +1,1 @@
+# AI-technologies-into-technical-and-medical-writing-processes
